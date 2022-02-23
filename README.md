@@ -1,1 +1,1 @@
-# Registro-de-alumno
+# Rodrigo Alexander Miaranda Pineda
